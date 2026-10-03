@@ -1,0 +1,2 @@
+# BOREDOMX
+Education For Life
